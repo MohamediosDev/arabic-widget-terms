@@ -83,7 +83,7 @@
 
 إذا كان لديك أي أسئلة حول شروط الاستخدام هذه، يمكنك التواصل معنا عبر البريد الإلكتروني:
 
-📧 [support@arabicwidget.app](mailto:support@arabicwidget.app)
+📧 [support@arabicwidget.app](mailto:mrdiscover22@gmail.com)
 
 </div>
 
